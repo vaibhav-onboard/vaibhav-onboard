@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vaibhav-onboard
 - 👀 I’m interested in living.
 - 🌱 I’m currently learning how to breath
-- 💞️ I’m looking to collaborate on programming projects
+- 💞️ I’m looking to collaborate on finding new ways to live
 - 📫 How to reach me: Instagram-@vaibhav.onboard (Currently inactive)
 
 <!---
